@@ -80,7 +80,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤི୧ Lala ⸝ 14 ⸝ [rentry](https://rentry.co/computerhiori) here ! ᤴ  
+ི୧ Lala ⸝ 14 ⸝ [rentry](https://rentry.co/computerhiori) here ! ᤴ  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/6e37b9d6-406f-4be4-8b3e-9bc10c751cea) ![image](https://github.com/user-attachments/assets/c7fc5508-5dd3-4bd1-95e2-5fd89f21f84b) ![image](https://github.com/user-attachments/assets/4e2f5921-a25e-4e3b-9d60-f81189b15bb5)
 
