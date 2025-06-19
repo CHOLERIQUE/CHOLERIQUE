@@ -82,7 +82,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤི୧ Lala ⸝ 14 ⸝ [rentry](https://rentry.co/hiori) here ! ᤴ  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/6e37b9d6-406f-4be4-8b3e-9bc10c751cea) ![image](https://github.com/user-attachments/assets/c7fc5508-5dd3-4bd1-95e2-5fd89f21f84b) ![image](https://github.com/user-attachments/assets/4e2f5921-a25e-4e3b-9d60-f81189b15bb5)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/010e58ca-aea2-4494-9f03-5fb20b41927b) ![image](https://github.com/user-attachments/assets/130709df-99c2-4d87-911b-3225d2eed11a)
+![image](https://github.com/user-attachments/assets/b1a7484b-1142-4257-810d-35f833846e2f)
 
 
 
